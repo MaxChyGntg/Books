@@ -5,6 +5,11 @@
 Background about the character and supporter character, how he interact with his family and friends before he realize something was changing, His different mindset compare to other kids in his age and the problem he faces that will change his perspective of life
 
 2. Chapter 2: The Problem 
-Will talk about the problem his family will face, the financial problem when max was in the 12th 
+Will talk about the problem his family will face, the financial problem when max was in the 12th High school and how it affect most of his life.
+
+3. Chapter 3: Imagination over Reality
+This chapter will be deep down moving into the Max imaginative minds where a lot of things was so complicated but feels more better until he realize that most of the time he was just wasting his time that would actually take him to his end ( He was not realize it yet. )
 
 
+4. Chapter 4: What should i do?
+5.

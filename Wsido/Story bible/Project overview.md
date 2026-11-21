@@ -1,4 +1,4 @@
-# Project Overview
+
 **Working Title:** What should I do?
 
 **Author:** Maxwell C.C
@@ -11,3 +11,5 @@
 
 **Project Status:** Concept Development
 
+[[Themes and Philosophy]]
+[[Plot]]

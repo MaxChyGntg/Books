@@ -1,5 +1,4 @@
 
-
 - Faith and God
 		How can God create suffering even He loves his Child? 
 		(He will find the answer but then question again.)
