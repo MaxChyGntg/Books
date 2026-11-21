@@ -35,4 +35,4 @@ But i know my mom buy me an ice cream she always bought when it was her time to 
 
 I run and hug her, forgetting the cube that was just a little bit more solved.
 
-"Mom! where is my ice cream?" I said while wrapping my hand on her waist, she smell like a coffee, because she was working at a coffee shop.
+"Mom! where is my ice cream?" I said while wrapping my hand on her waist, she smell like a coffee, because she was worked at a coffee shop.
