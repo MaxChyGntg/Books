@@ -93,7 +93,8 @@
       }
     ],
     "direction": "horizontal",
-    "width": 300
+    "width": 300,
+    "collapsed": true
   },
   "right": {
     "id": "bb9e2d3240c757cf",
@@ -202,17 +203,17 @@
   },
   "active": "77153fa8b7dcbe79",
   "lastOpenFiles": [
-    "Wsido/Idea/Ide tiba2.md",
+    "Wsido/Story bible/Character.md",
+    "Wsido/Story bible/Core Concept & Premise.md",
+    "Wsido/Story bible/Themes and Philosophy.md",
+    "Wsido/Story bible/Setting and World.md",
+    "Wsido/Story bible/Project overview.md",
     "Wsido/Manuscript/Part 1/Chapter 1.md",
+    "Wsido/Idea/Ide tiba2.md",
     "Wsido/Idea",
     "Wsido/Manuscript/desktop.ini",
     "Wsido/Manuscript/Part 1",
-    "Wsido/Story bible/Project overview.md",
-    "Wsido/Story bible/Themes and Philosophy.md",
     "Wsido/Manuscript",
-    "Wsido/Story bible/Setting and World.md",
-    "Wsido/Story bible/Core Concept & Premise.md",
-    "Wsido/Story bible/Character.md",
     "Wsido/Story bible/Narative & Writing Style.md",
     "Wsido/Story bible/Plot.md",
     "Wsido/Story bible/Pasted image 20261121122452.jpg"

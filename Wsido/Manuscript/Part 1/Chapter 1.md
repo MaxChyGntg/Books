@@ -37,3 +37,8 @@ I ran and hug her, forgetting the cube that was just a little bit more solved.
 
 "Mom! where is my ice cream?" I said while wrapping my hand on her waist, she smell like a coffee, because she was worked at a coffee shop.
 
+---
+
+It seems that she doesn't buy me any ice cream today.
+
+But she bought something way better, in her hand i saw 

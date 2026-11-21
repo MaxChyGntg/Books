@@ -49,8 +49,13 @@
     "maxCharsPerLine": 64
   },
   "restoreCursorPosition": {
-    "cursorPositions": {},
-    "isRestoreCursorPositionEnabled": false
+    "cursorPositions": {
+      "Wsido/Manuscript/Part 1/Chapter 1.md": {
+        "anchor": 1601,
+        "head": 1601
+      }
+    },
+    "isRestoreCursorPositionEnabled": true
   },
   "typewriter": {
     "isOnlyMaintainTypewriterOffsetWhenReachedEnabled": false,
