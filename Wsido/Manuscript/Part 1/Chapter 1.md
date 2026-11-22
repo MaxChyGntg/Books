@@ -1,6 +1,6 @@
 
 ---
-Detroit, Michigan—2016
+*Detroit, Michigan—2016*
 
 ==🟠A boy who spends his life trying to understand how everything works==
 	==🟠Ended up dying by his own thought...== 
@@ -81,13 +81,33 @@ I couldn't explain how happy i am that day.
 
 
 ---
-2026
+*2026*
 
 Who knows? 
 
 That the very same laptop was still sit in front of me.
 
-The same place, even tough a different things to do know.
+The same place, even tough a different things to do.
+
+Seventeen years old now, and somehow i still sitting in the same exact chair.
+
+A few years ago, i met my uncle, he was coming from Singapore.
+
+He work as a software engineer at one of the biggest fintech company.
+
+I remember about the advice he gave me before leaving.
+
+"If you want to be rich like me, don't just learn how to make money, learn how to make something valuable"
+
+"Like what?", I didn't quite understand what he mean.
+
+"Learn how to code, it will takes you somewhere..", that was the last time he came back.
+
+I ask mom about him, she didn't want to answer it.
+
+So i decide to try his advice, i learn how to code.
 
 
+Somehow it works, i fell in love to this thing.
 
+Even tough sometimes my friends said tha
