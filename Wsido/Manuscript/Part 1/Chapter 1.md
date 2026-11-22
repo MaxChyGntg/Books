@@ -71,6 +71,23 @@ Then i realize what is it.
 
 "Happy birthday, sweetheart....", a crack on her beautiful voices and her sweet smile.
 
-That a 6—Years old me never realize, how long it takes to saved some of her paycheck to get me this.
+That a six-year-old me never realize, how long it takes to saved some of her paycheck to get me this.
 
-I ask her if i can play a games on it, she said "The guy tell me that it can run for- forza"
+I ask her if i can play a games on it, she told me the guy at the store said it could run Forza smoothly
+
+"Forza horizon 3?? oh my God... this is the best day of my life!!"
+
+I couldn't explain how happy i am that day.
+
+
+---
+2026
+
+Who knows? 
+
+That the very same laptop was still sit in front of me.
+
+The same place, even tough a different things to do know.
+
+
+
