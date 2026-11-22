@@ -37,11 +37,12 @@ I ran and hug her, forgetting the cube that was just a little bit more solved.
 
 "Mom! where is my ice cream?" I said while wrapping my hand on her waist, she smell like a coffee, because she was worked at a coffee shop.
 
----
-
 It seemed that she wasn't buying me any ice cream today.
 
 Instead, she bought something way better—in her hand i saw some black browned box.
+
+
+---
 
 "What is it mom?", I said while looked at her sweet faces.
 
@@ -61,4 +62,15 @@ She placed it on the table, she said
 
 I didn't think twice.
 
-I 
+
+I tried to open it gently but i couldn't, I was to curious about the thing inside.
+
+Then i realize what is it.
+
+"Oh my God! a gaming laptop??", I shouted directly to my mom faces.
+
+"Happy birthday, sweetheart....", a crack on her beautiful voices and her sweet smile.
+
+That a 6—Years old me never realize, how long it takes to saved some of her paycheck to get me this.
+
+I ask her if i can play a games on it, she said "The guy tell me that it can run for- forza"
