@@ -39,6 +39,14 @@ I ran and hug her, forgetting the cube that was just a little bit more solved.
 
 ---
 
-It seems that she doesn't buy me any ice cream today.
+It seemed that she wasn't buying me any ice cream today.
 
-But she bought something way better, in her hand i saw 
+Instead, she bought something way better, in her hand i saw some black browned box.
+
+"What is it mom?", I said while looked at her sweet faces.
+
+"C'mon lets get home first, shall we?", she said. But i was too curious about what's inside.
+
+I followed her back to the car, while still wondering and question it a little.
+
+"What is it mom....", I was very curious because its different.
