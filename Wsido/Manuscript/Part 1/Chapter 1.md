@@ -41,7 +41,7 @@ I ran and hug her, forgetting the cube that was just a little bit more solved.
 
 It seemed that she wasn't buying me any ice cream today.
 
-Instead, she bought something way better, in her hand i saw some black browned box.
+Instead, she bought something way better—in her hand i saw some black browned box.
 
 "What is it mom?", I said while looked at her sweet faces.
 
@@ -49,4 +49,16 @@ Instead, she bought something way better, in her hand i saw some black browned b
 
 I followed her back to the car, while still wondering and question it a little.
 
-"What is it mom....", I was very curious because its different.
+"What is it mom....", I was very curious because its different. 
+
+My mom was always a sweet woman, she always have something that make me smile.
+
+Then when we arrived at the house, i sat on the dining chair.
+
+She placed it on the table, she said
+
+"Well, aren't you going to open it?"
+
+I didn't think twice.
+
+I 
